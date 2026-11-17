@@ -1,0 +1,1 @@
+Beloved father in law.  His [obituary](https://www.adamsgreen.com/obituaries/James-Arthur-Lloyd?obId=48529005).

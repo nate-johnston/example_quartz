@@ -1,0 +1,1 @@
+- [Amazon Send to Kindle](https://www.amazon.com/sendtokindle)

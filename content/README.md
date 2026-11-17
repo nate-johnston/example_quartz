@@ -1,0 +1,4 @@
+# brain
+
+- For task tracking: [Monday](https://natejohnston.monday.com/boards/18403384924)
+- 
